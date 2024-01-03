@@ -1,1 +1,1 @@
-https://www.youtube.com/watch?v=zrB2nx76qKc
+https://www.youtube.com/watch?v=zrB2nx76qKc (Proje linki)
